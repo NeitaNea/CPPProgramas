@@ -1,0 +1,1 @@
+odio esta asignatura gracias
